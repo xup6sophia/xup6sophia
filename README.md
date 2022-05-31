@@ -1,4 +1,7 @@
 ### Hi there 👋
+- I'm currently an undergraduate student. 
+- This is an account for me to upload school work.✨
+
 
 <!--
 **xup6sophia/xup6sophia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
