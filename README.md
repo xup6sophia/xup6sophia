@@ -1,6 +1,8 @@
 ### Hi there 👋
 - I'm currently an undergraduate student. 
 - This is an account for me to upload school work.✨
+- My Website (Still Working on it, but feel free to visit): https://xup6sophia.github.io/ 
+
 
 
 
